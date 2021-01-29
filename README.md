@@ -1,1 +1,0 @@
-# Applicazione-con-AR-jswlp4d
